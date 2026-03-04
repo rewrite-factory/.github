@@ -56,7 +56,6 @@
 **Елена Богданова** — маркетинг и стратегия  
 → [Habr](https://habr.com/ru/users/vaganovelena/) · [VC.ru](https://vc.ru/id132687) · [TG](https://t.me/lenabogdanovaaa)
 
-**Команда:** Серёжа (продукт), Андрей (продажи), Лиза (операции)
 
 ---
 
