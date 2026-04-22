@@ -5,7 +5,8 @@
 
 🌐 **Сайт:** [rewritefact.ru](https://rewritefact.ru)  
 📧 **Email:** hello@rewritefact.ru  
-✈️ **Telegram:** [@rewritefact](https://t.me/rewritefact)
+✈️ **Telegram:** [@rewritefact](https://t.me/rewritefact)  
+⚡ **Spark:** [spark.ru/startup/rerajt-zavod](https://spark.ru/startup/rerajt-zavod/)
 
 ---
 
