@@ -7,6 +7,7 @@
 📧 **Email:** hello@rewritefact.ru  
 ✈️ **Telegram:** [@rewritefact](https://t.me/rewritefact)  
 ⚡ **Spark:** [spark.ru/startup/rerajt-zavod](https://spark.ru/startup/rerajt-zavod/)
+🗺️ **Яндекс.Бизнес:** [yandex.ru/sprav/82107665955/p](https://yandex.ru/sprav/82107665955/p)
 
 ---
 
